@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning A2 Korean, N5 Japanese, HSK1 Chinese; C, Python, Julia
 - 📫 Reach me on instagram: @soonmin_17
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: I stan Seventeen; play Genshin, PJSK, HSR, ZZZ, WuWa
+- ⚡ Fun fact: I stan Seventeen; play Genshin, PJSK, HSR, ZZZ, HI3, ToT, WuWa, Enstars
 
 <!---
 ecedeger/ecedeger is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
